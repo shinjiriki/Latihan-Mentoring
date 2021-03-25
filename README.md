@@ -1,3 +1,3 @@
 # Latihan-Mentoring
 
-Most of the things I do here is out of confusion. 
+Nothing fancy to see here, just some practice given by Teachers. 
